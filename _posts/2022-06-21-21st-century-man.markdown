@@ -42,3 +42,5 @@ In a way, it is a call to arms, but we will leave that for another time<br>
 I find myself wanting to write more, explore my ideas more, to formulate them better. 
 
 This is my place for exploration.
+
+*also I love electric light orchestra*
