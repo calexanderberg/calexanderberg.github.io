@@ -8,11 +8,14 @@ I am quite inspired by the late Christopher Hitchens. He defined his life in man
 
 > You should try to live your life as if you were a free person, not having to wonder what everyone's opinion was. That you should take the risk of being the only person believing what you believe in and that still might mean that you were right; that if the majority believes a certain way, it makes it more likely than not to be wrong.
 
-There is a lot of common and established knowledge that I find myself rejecting in day-to-day life. Ideas that would be controversial to some while still rally others. I still find it shocking to feel the need to mention that I am a classical liberal to avoid controversy, however, this is what we as a people have grown accustomed to.<br>
+In a way, it could be considered a call to arms. Are there truths I considered to be self-evident that are everything but? What basis do I have for my morality and view of the world? 
+
+I find that there is common and established knowledge that I reject. Ideas that would be controversial to some while some can even rally others. I am not an ideology I reject the mental prison that it creates, forcing people to follow a road map for their beliefs. In a way, I am here to create my own.<br>
 
 ---
 
-<br>I see there is a great need for people today to speak up. Society has grown scared and is badly in need of healing. And we do not realize how important it is for everyone to make their voice heard. So let me ask you this:
+<br>
+I see there is a great need for people today to speak up. Society has grown scared of speaking its mind. And we do not realize how important it is for everyone to make their voice heard. I keep asking myself: *If I am too scared to speak, who will speak on my behalf?* So let me ask you this:
 
 ***How tolerant is a society when ideologies break families apart?***
 
