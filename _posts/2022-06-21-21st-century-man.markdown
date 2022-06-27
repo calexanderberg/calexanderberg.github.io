@@ -8,7 +8,7 @@ I am quite inspired by the late Christopher Hitchens. He defined his life in man
 
 > You should try to live your life as if you were a free person, not having to wonder what everyone's opinion was. That you should take the risk of being the only person believing what you believe in and that still might mean that you were right; that if the majority believes a certain way, it makes it more likely than not to be wrong.
 
-In a way, it could be considered a call to arms. Are there truths I considered to be self-evident that are everything but? What basis do I have for my morality and view of the world? 
+In a way, it could be considered a call to arms. Are there truths I consider to be self-evident that are everything but? What basis do I have for my morality and view of the world? 
 
 I find that there is common and established knowledge that I reject. Ideas that would be controversial to some, but why would that matter? Is the crowd inheriently wise or mad? I am not an ideology I reject the mental prison that it creates, forcing people to follow a road map for their beliefs. In a way, I am here to create my own.<br>
 
