@@ -10,12 +10,12 @@ I am quite inspired by the late Christopher Hitchens. He defined his life in man
 
 In a way, it could be considered a call to arms. Are there truths I consider to be self-evident that are everything but? What basis do I have for my morality and view of the world? 
 
-I find that there is common and established knowledge that I reject. Ideas that would be controversial to some, but why would that matter? Is the crowd inheriently wise or mad? I am not an ideology I reject the mental prison that it creates, forcing people to follow a road map for their beliefs. In a way, I am here to create my own.<br>
+I find that there is common and established knowledge that I reject. Ideas that would be controversial to some, but why would that matter? Is the crowd inheriently wise or mad? I am not an ideology. I reject the mental prison that it creates, forcing people to follow a road map for their beliefs. In a way, I am here to create my own.<br>
 
 ---
 
 <br>
-I see there is a great need for people today to speak up. Society has grown scared of speaking its mind. And we do not realize how important it is for everyone to make their voice heard. I keep asking myself: *If I am to scared to speak, who will speak on my behalf?* So let me ask you this:
+I see there is a great need for people today to speak up. Society has grown scared of speaking its mind. And we do not realize how important it is for everyone to make their voice heard. I keep asking myself: *If I am too scared to speak, who will speak on my behalf?* So let me ask you this:
 
 ***How tolerant is a society when ideologies break families apart?***
 
