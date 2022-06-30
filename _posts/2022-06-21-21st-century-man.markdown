@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Why 21st century man?"
+title:  "Why 21st Century Man?"
 date:   2022-06-21 19:09:51 +0200
 categories: jekyll update
 ---
