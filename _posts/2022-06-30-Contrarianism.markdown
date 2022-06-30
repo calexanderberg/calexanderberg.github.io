@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "On contrarianism"
-date:   2022-06-30 00:00:00 +0200
+date:   2022-06-30 00:01:00 +0200
 categories: jekyll update
 ---
 The Oxford dictionary defines a contrarian as:
