@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Contrarianism and freedom"
+title:  "On contrarianism"
 date:   2022-06-30 00:00:00 +0200
 categories: jekyll update
 ---
